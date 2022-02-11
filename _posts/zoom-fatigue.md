@@ -1,0 +1,7 @@
+Natürlich sind Philippa und ich in einem Zoom zusammen. Natürlich ist es ein Zoom. Da sind Kinder in ihrer Kachel, zwei Mädchen, die spielen, noch nicht so ganz reden, aber können wenn sie wollen, noch gern sitzen auf ihrem Hintern, flach mit den Beinen störrisch verbreitet.
+
+Ich Frage nach den Kindern und wie sie von ihren Nichten spricht, wird ihr Gesicht weich und ihr Lächeln echt, ihre Stimme warm und sie ruft eine Begrüßung zu ihrem Vater in den Hintergrund, denn der hat gekocht. Es ist das Ende des Calls und die Zeit wie immer knapp.
+
+Dann spricht sie es an, ohne etwas zu sagen, spricht von der Vorstandssitzung Anfang Januar, da sei ich zur Sprache gekommen und sie hätte erst da verarbeitet, es sei ihr unangenehm, aber die anderen hätten es nochmal gesagt, wie es sich verändert habe, seit ich nicht mehr dabei bin, ich hätte immer viele Vorschläge gebracht, einfach verändert, getrieben und das fehle jetzt.
+
+Ich wache auf aus diesem Traum und kann es kaum fassen, wie tief das weiterhin sitzt. Gestern erst habe ich mit Andreas Lange kurz angesprochen, dass wir damals schlecht auseinander gegangen sind. Dann nochmal kurz mit Alex angesprochen, der meinte, ich solle mich nicht zu sehr sorgen, wir seien alle Menschen. Und schon ist es wieder in meinen Träumen.

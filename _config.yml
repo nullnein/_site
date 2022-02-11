@@ -26,7 +26,7 @@ description: >-                        # used by seo meta and the atom feed
   Collecting some work, some thoughts, and jumping to the beat.
 
 # fill in the protocol & hostname for your site, e.g., 'https://username.github.io'
-url: 'https://nullnein.github.io'
+url: 'https://nullnein.onrender.com'
 
 github:
   username: nullnein             # change to your github username
@@ -80,7 +80,7 @@ theme_mode:   # [light|dark]
 img_cdn:
 
 # the avatar on sidebar, support local or CORS resources
-avatar:
+avatar: /assets/img/favicons/android-chrome-256x256.png
 
 # boolean type, the global switch for ToC in posts.
 toc: true
